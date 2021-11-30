@@ -1,2 +1,3 @@
 # Hi
-![Hello_(yellow)](https://user-images.githubusercontent.com/67300899/144000748-265753be-6cd0-40b9-ab1c-0e462350d1d5.png)
+![Hello-PNG-Image-Background](https://user-images.githubusercontent.com/67300899/144000823-f3019c85-4582-42fc-9857-a1e0e513d8d7.png)
+
